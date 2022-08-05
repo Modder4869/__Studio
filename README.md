@@ -1,6 +1,6 @@
 # Future of the Project
 
-Vote ![here](https://forms.gle/NXLkxiDPekmUjmbHA).
+Vote here: https://forms.gle/NXLkxiDPekmUjmbHA
 
 Looking forward for your feedback.
 _____________________________________________________________________________________________________________________________
